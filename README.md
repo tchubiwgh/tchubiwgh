@@ -1,13 +1,3 @@
-### Boas vindas ao meu perfil! ♡
+### Boas vindas ao meu perfil! ۶ৎ
 
-Meu nome é Silvia Luiza
-
-- ♡ Estou estudando na Alura 
-- ♡ Estou me desenvolvendo na linguagem de JavaScript
-- ♡ Utilizo este espaço para minha organização e compartilhamento dos meus projetos desenvolvidos!
-
-  ### Para entrar em contato: 
-  
-  im.tchubi@gmail.com @tchubiwgh
-
-  ![](https://media1.tenor.com/m/taCom2k_bUEAAAAd/toji-toji-fushiguro.gif)
+  ![]([https://media1.tenor.com/m/taCom2k_bUEAAAAd/toji-toji-fushiguro.gif](https://img1.picmix.com/output/pic/normal/0/5/9/2/11492950_fbeed.gif))
