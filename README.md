@@ -1,4 +1,3 @@
-### Boas vindas ao meu perfil! ۶ৎ
+### Welcome to my profile! ۶ৎ
 
- 
-  ![]([[https://media1.tenor.com/m/taCom2k_bUEAAAAd/toji-toji-fushiguro.gif](https://img1.picmix.com/output/pic/normal/0/5/9/2/11492950_fbeed.gif)](https://tenor.com/bkuBA.gif))
+<div class="tenor-gif-embed" data-postid="17238196" data-share-method="host" data-aspect-ratio="1" data-width="100%"><a href="https://tenor.com/view/kitty-music-love-music-jamming-gif-17238196">Kitty Music GIF</a>from <a href="https://tenor.com/search/kitty-gifs">Kitty GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
